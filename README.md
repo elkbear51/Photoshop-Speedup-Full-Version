@@ -1,0 +1,1 @@
+# Photoshop-Speedup-Full-Version
